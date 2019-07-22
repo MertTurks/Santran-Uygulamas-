@@ -1,1 +1,1 @@
-# Santran-Uygulamas-
+# Santranc Uygulamasi
